@@ -1,5 +1,3 @@
-# meryanidewitri
-ryani dewitri
 # Halo, Saya Ryanidewitri 👋
 ### Geologist & Occupational Health and Safety (OHS) Enthusiast
 
